@@ -1,4 +1,5 @@
-# Clarence Dollar$ [CLAN]
+# Clarence Dollars [ - CLAN - ]
+
 ==========================
 
 ![ClarenceDollars](https://vignette.wikia.nocookie.net/clarence-la/images/b/b5/Clarence%27s_Millions_-_Storyboard_1.gif/revision/latest?cb=20140603193541&path-prefix=es)
